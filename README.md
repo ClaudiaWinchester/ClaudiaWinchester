@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ClaudiaWinchester
+- 👀 I’m interested in geek culture, movies and sports.
+- 🌱 I’m currently learning about digital marketing and how to improve my skills as a graphic designer.
+- 💞️ I’m looking to collaborate on graphic design and written content creation.
+- 📫 You can contact me on my e-mail: hiclaudia17@hotmail.com
